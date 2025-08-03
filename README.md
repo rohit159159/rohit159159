@@ -1,5 +1,5 @@
 # 💫 Hi 👋, I'm Rohit Kumar
-**A passionate Software Engineer || UI/UX Designer || Web Developer**
+**A passionate Software Engineer || Web Developer ||  UI/UX Designer || Java Developer**
 
 Email Me 👉 ✉️ **rohitkr.7555@gmail.com** . 😊😊
 
